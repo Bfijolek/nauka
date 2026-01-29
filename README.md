@@ -1,2 +1,0 @@
-# nauka
-Do celow naukowych
